@@ -65,7 +65,7 @@
 
 ## 🌐 Connect with me
 
-* 💼 LinkedIn: (add here)
+* 💼 LinkedIn: (www.linkedin.com/in/gabrielflorindosilva/)
 * 📧 Email: [gflorindo123@gmail.com](mailto:gflorindo123@gmail.com)
 
 ---
